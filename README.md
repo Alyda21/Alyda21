@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi, im a super learner
 
 <!--
 **Alyda21/Alyda21** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
